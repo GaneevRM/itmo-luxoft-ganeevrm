@@ -1,1 +1,1 @@
-# itmo-ydvorzhetskiy
+# Студент. Ганеев Р.М.
